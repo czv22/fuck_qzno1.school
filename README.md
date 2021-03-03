@@ -1,0 +1,1 @@
+# fuck_qzno1.school
